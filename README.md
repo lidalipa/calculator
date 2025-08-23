@@ -102,4 +102,5 @@
 
 **Лида Липатова**
 - GitHub: [@lidalipa](https://github.com/lidalipa)
+- Tg: [@lida_lipa](https://t.me/lida_lipa)
 
